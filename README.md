@@ -1,4 +1,10 @@
-### Hi there 👋
+### Hi there!! ^_^
+i'm medi, i live in slovakia with my uncle, he is a nice uncle.
+my job is helping my ugandan grandpa spaceglide around china 1v9 and being an L9 mafia boss.
+i don't like strawberries. it's gross.
+i do like chocolate and banana.
+my pronouns are was/were and i support china.
+#freepalestine #freeisrael
 
 <!--
 **mediphobic/mediphobic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
