@@ -1,9 +1,9 @@
 ## Hi there!! ^_^
 - i'm medi, i live in slovakia with my uncle, he is a nice uncle.
 - my job is helping my ugandan grandpa spaceglide around china 1v9 and being an L9 mafia boss.
-- i don't like strawberries. it's gross.
+- i don't like strawberries. it's gross just like pedos.
 - i do like chocolate and banana.
-- my pronouns are was/were and i support china.
+- my pronouns are was/were and i support china and probably also support black people, maybe iirc
 - #freepalestine #freeisrael
 
 <!--
